@@ -5,11 +5,11 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m studing Computer Science Technology😫😔
-- 🌱 I’m currently learning Programming🖥
+- 🔭 I’m studying Computer Science and Technology😫😔
+- 🌱 I’m currently learning Programming Languages🖥
 - 🤔 I’m looking for help with coding
 - 💬 Ask me about anything🤪🤪..
-- 📫 How to reach me: lekhyanagasai@gmail.com
+- 📫 How to reach me: lekhya38@gmail.com
 - 😄 Pronouns: 😁😆😲😴
 - ⚡ Fun fact: ...you are true beauty🤩🤩🤩...
 
